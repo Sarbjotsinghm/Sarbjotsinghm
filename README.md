@@ -1,7 +1,7 @@
 ### Hello, folks!👋
 
 I am Sarbjot Singh. I am International Student, working and studying side by side here in Canada. Struggling with winters and catching up with my studies regularly and finally reached in last summester.
-Hoping to get a job in my field as soon as possib;le after I done with skool.
+Hoping to get a job in my field as soon as possible after I done with skool.
 
 
 
