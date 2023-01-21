@@ -14,13 +14,13 @@ Here are some ideas to get you started:
 - 💬 Ask me about my life, my experiences and anything related to my studies.
 
 ### 
-- 📫 How to reach me:
+📫 How to reach me:
 - [Twitter](https://twitter.com/sarb_mann8) 
 - [LinkedIn](https://www.linkedin.com/in/sarbjot-singh-8050a7222/) 
 - [Instagram](https://www.instagram.com/sarbmann8/) 
 
 ### 
-- 😄 Pronouns: ...
+😄 Pronouns: ...
 - ⚡ Fun fact: Most people pronounce my name wrong. So I just wanna say, call me SARB.
 
 I am looking forward to absorb you.
@@ -36,11 +36,11 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with someone who can teach me how to be descipline in studies and works.
 - 💬 Ask me about my life, my experiences and anything related to my studies.
 
-- 📫 How to reach me:
+📫 How to reach me:
 - [Twitter](https://twitter.com/sarb_mann8) 
 - [LinkedIn](https://www.linkedin.com/in/sarbjot-singh-8050a7222/) 
 - [Instagram](https://www.instagram.com/sarbmann8/) 
 
-- 😄 Pronouns: ...
+😄 Pronouns: ...
 - ⚡ Fun fact: Most people pronounce my name wrong. So I just wanna say, call me SARB.
 
